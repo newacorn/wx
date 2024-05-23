@@ -1,0 +1,1 @@
+http:\/\/mmbiz.qpic.cn\/sz_mmbiz_png\/QKbJ0uQziaFPUc2BJ2FbzpYejBiat84Gu23w4SEaPvD9Ppbt0JWeS303GSElMu6g2RShFWUvEX7Yh7IrJlHicDctg\/0?wx_fmt=png
